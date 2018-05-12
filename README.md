@@ -6,3 +6,4 @@ I saved some today.
 26/12/2017 Submitted year end review for review. It took ages.
 
 08/05/2018 I saved some today by turning off the lights. #wow
+12/05/2018 I spent some today. I kept the zushi in the fridge for a minute. #chilledZushi #veryCool
